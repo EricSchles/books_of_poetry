@@ -211,3 +211,65 @@ I am stronger than fear.
 I am better than regret.
 
 I am more than loss.
+
+# Missing Something To Work Towards
+
+It's a feeling of discomfort.  
+ 
+A lack of control.
+
+It's a sense of unease.
+
+Like you never know where you stand.
+
+And it hurts.
+
+Because you are just waiting for the rejection to come and feeling lonely all the more often.
+
+And then it clicks.
+
+You don't want this and it's killing you to try.
+
+Things were so much easier before.
+
+But now there are expectations and decisions and it's not about whether someone seems nice and smart.
+
+It's not about trying.
+
+It's about success.  And the world feels cold and endless and scary.
+
+And you will never find the one you love.
+
+It's not just going to take time.  It's never going to happen.
+
+Because perfect is impossible.
+
+It's a fairytale.
+
+And I'm just lost in a sea of inabilities to accept.
+
+It doesn't matter what I want.
+
+I'm never going to get it.
+
+Because I'm not stable enough to go more than a week seeing a person I barely know.
+
+Who knows what she might mean to me?  But she doesn't yet.  And I just really want to find out.
+
+I hate the middle of the story.  And I'm obsessed with the ending.
+
+Someone with a personality like mine has no right being this unattractive.  Because I can't handle having to work at it.
+
+I wish I could just find her already.  And just get on with the rest of the work.  But I won't.  She is never coming.  And it's time to just live my life I guess?  But then what am I moving towards?  A house alone.  
+
+And that sounds like a fucking nightmare.  
+
+No family.
+
+No kids.
+
+Death alone in a room.  
+
+No one there for me.
+
+That is my fate.  Because it's really fucking hard to meet someone?  I don't know.
